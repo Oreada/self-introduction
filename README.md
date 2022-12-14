@@ -1,3 +1,3 @@
 # self-introduction
 
-June, 6. 2022
+6th of June, 2022
